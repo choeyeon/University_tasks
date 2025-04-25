@@ -1,0 +1,1 @@
+Determination_of_the_temperature_of_the_central_star
